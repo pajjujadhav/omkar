@@ -1,2 +1,3 @@
 # omkar
-Omkar is vary wholesome guy
+Ny hora kyaa 
+hindi matr bhashaa
